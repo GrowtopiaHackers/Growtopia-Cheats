@@ -1,3 +1,3 @@
 # GrowPai
 Credits: HertZxD,
-Download: (https://github.com/GrowtopiaHackers/Growtopia-Cheats/releases/download/GrowPai/GrowPai.exe)
+Download: [Link](https://github.com/GrowtopiaHackers/Growtopia-Cheats/releases/download/GrowPai/GrowPai.exe)
